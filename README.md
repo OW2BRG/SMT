@@ -1,1 +1,1 @@
-# SMT
+# SMT Esports
